@@ -5,3 +5,6 @@ Colores del arcoíris
 2- Limpiamos y pelamos la papas firtas
 3- Las dejamos en un bowl junto a agua para quuitar el almidon
 4- Despues de media hora la sacamos del agua y las secamos
+5- En un sarten con aseite caliente colocamos las papas hasta que se friten
+6- la sacamos colamos y colocamos en un plato para servirlas.
+7- Disfruta
